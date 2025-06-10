@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to my interests though I'm open to collaborations on any area.
 - 📫 How to reach me Instagram:@de_fenom @belovedof._god Facebook:@Richard Dentey            Threads:@belovedof._god
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I really love to write but most of the time I'm writing poetry
+- ⚡ Fun fact: I love to write and read.
 
 <!---
 rasdentey/rasdentey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
